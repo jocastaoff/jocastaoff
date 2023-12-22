@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a developer from France and Turkey.<br>2 years of reverse engineering in 2020<br>2 years in graphic designer and 3D modeling in 2018<br>+18<br>
+I am a developer from France and Turkey. I also invest during my free time, whether it's in gold or cryptocurrencies controlled by this massive infrastructure.<br>2 years of reverse engineering in 2020<br>2 years in graphic designer and 3D modeling in 2018<br>+18<br>
 
 
 ## 🌐 Socials:
